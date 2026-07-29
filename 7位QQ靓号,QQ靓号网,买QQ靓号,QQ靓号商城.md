@@ -3,7 +3,7 @@ QQ靓号网,买QQ靓号,QQ靓号商城,5位/6位/7位/8位/9位/10位QQ靓号购
 
 联系电话：199-0716-6868
 
-[https://5678qq.com/](https://5678qq.com/​)
+[https://5678qq.com/qwQQ.html](https://5678qq.com/qwQQ.html)
 
 7位QQ
 
